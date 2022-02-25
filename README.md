@@ -1,2 +1,2 @@
-# hello-dude
-It's Adventure time
+# How 'bout u-dude
+Sweat Joy Right!
